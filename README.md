@@ -8,7 +8,8 @@ Gmail: rafaeltorresdasilva06@gmail.com
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - Fazendo Tecnico em ADMINISTRAÇÃO  no Senai
 - Ensino médio quase completo
-- ![](https://media1.tenor.com/m/ZUT9ceWRpzkAAAAd/carlinhos-dalva.gif)
+  
+ ![](https://media1.tenor.com/m/ZUT9ceWRpzkAAAAd/carlinhos-dalva.gif)
 
 
 
